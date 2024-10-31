@@ -2,9 +2,9 @@
 Yoo bro what au looking for
 Just deploy the bot with original repo
 
-HANS MD
+TIMNASA MD
 
-Made by dev HANS TZ
+Made by dev TIMNASA-MD TZ
 
 
                  _.u[[/;:,.         .odMMMMMM'
